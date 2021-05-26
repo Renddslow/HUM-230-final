@@ -1,1 +1,3 @@
 - The Black Scholar: jid:(j50001074)
+- Journal of Black Studies: jid:(j100209)
+- Ethnomusicology: jid:(j100156)

@@ -1,0 +1,2 @@
+- [Black Music Matters: Jazz and the Transformation of Music Studies](https://www.amazon.com/Black-Music-Matters-Transformation-Studies/dp/1538111705)
+- [Spectacular Vernaculars: Hip-Hop and the Politics of Postmodernism](https://www.amazon.com/Spectacular-Vernaculars-Politics-Postmodernism-Postmodern/dp/0791426262)
