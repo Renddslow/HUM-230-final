@@ -1,2 +1,6 @@
 - [Black Music Matters: Jazz and the Transformation of Music Studies](https://www.amazon.com/Black-Music-Matters-Transformation-Studies/dp/1538111705)
 - [Spectacular Vernaculars: Hip-Hop and the Politics of Postmodernism](https://www.amazon.com/Spectacular-Vernaculars-Politics-Postmodernism-Postmodern/dp/0791426262)
+- [Lynching: American Mob Murder in Global Perspective](https://www.amazon.com/Lynching-American-Murder-Global-Perspective-ebook/dp/B01F95X57A/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=#detailBullets_feature_div)
+- [Liberalizing Lynching: Building a New Racialized State](https://www.amazon.com/Liberalizing-Lynching-Building-Racialized-State/dp/0190232579)
+- [Strange Fruit](https://vimeo.com/ondemand/strangefruit2)
+- [Soundtrack for a Revolution]
